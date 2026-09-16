@@ -1,2 +1,0 @@
-# sitelegal
-pra estuda sla
